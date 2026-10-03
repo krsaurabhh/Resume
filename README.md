@@ -1,3 +1,3 @@
 # Resume
 
-### I am doing chnages
+### I am doing changes
